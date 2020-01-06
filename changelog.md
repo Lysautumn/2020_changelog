@@ -27,3 +27,12 @@
 - HOME PREP: Pack, book moving company
 - WELLNESS: Meet step goal
 
+#### Saturday, January 4, 2020
+---
+- COOKING:
+    Breakfast: Cereal
+    Lunch: Pasta and salad
+    Dinner: Stir fry
+- HOME PREP: Packing, change of address with post office
+- WELLNESS: Meditate
+
