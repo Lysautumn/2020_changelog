@@ -36,3 +36,12 @@
 - HOME PREP: Packing, change of address with post office
 - WELLNESS: Meditate
 
+#### Sunday, January 5, 2020
+---
+- COOKING:
+    - Breakfast: Breakfast sandwich
+    - Lunch: Pizza
+    - Dinner: Spaghetti w meat sauce and salad
+- HOME PREP: Start deep cleaning bathroom and packing kitchen
+- WELLNESS: Meditate
+
