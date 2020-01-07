@@ -45,3 +45,9 @@
 - HOME PREP: Start deep cleaning bathroom and packing kitchen
 - WELLNESS: Meditate
 
+#### Monday, January 6, 2020
+---
+- COOKING:
+    - Dinner: Beef pasta, tomato salad
+- HOME PREP: Contacted vet for records and insurance
+- WELLNESS: Met step goal
