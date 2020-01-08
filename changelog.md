@@ -51,3 +51,11 @@
     - Dinner: Beef pasta, tomato salad
 - HOME PREP: Contacted vet for records and insurance
 - WELLNESS: Met step goal
+
+#### Tuesday, January 7, 2020
+---
+- COOKING:
+    - Lunch: Spaghetti w meat sauce
+    - Dinner: Pizza
+- HOME PREP: Prepare for maintenance inspection
+- WELLNESS: Meet step count, meditate
