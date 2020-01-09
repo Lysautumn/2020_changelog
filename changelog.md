@@ -59,3 +59,10 @@
     - Dinner: Pizza
 - HOME PREP: Prepare for maintenance inspection
 - WELLNESS: Meet step count, meditate
+
+#### Wednesday, January 8, 2020
+---
+- COOKING:
+    - Breakfast: strawberry overnight oats
+    - Dinner: Tacos
+- WELLNESS: Meet step count
